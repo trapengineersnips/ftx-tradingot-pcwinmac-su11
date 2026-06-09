@@ -1,4 +1,4 @@
-# 
+# VIP ftx trading bot predefinições para Mac OS | Oficial ftx trading bot predefinições para PC Windows. Com indexação de blockchain e gerenciamento de chaves privadas — otimizado para máximo desempenho em cada plataforma.
 
 
 
